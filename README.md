@@ -8,6 +8,11 @@
 
 -> Hardworking, Self-Motivated Person
 
+To reach out-
+
+Mail: ketangoswami2003@gmail.com
+
+LinkedIn: https://www.linkedin.com/in/ketan-goswami-a02388250/
 <!---
 Ketan-Goswami/Ketan-Goswami is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
